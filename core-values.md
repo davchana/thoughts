@@ -6,4 +6,4 @@ Prior to boarding the subway each morning, I read this list. It helps [better al
 - I love myself and others infinitely.
 - I strive to make the world better through people.
 - I practice going first.
-- I'm a person who leans into fears. They're growth in disguise.  
+- I embrace discomfort - it's usually where you'll find growth.
