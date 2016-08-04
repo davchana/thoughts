@@ -31,3 +31,4 @@
 - Mental state changes often follow physical state changes.
 - Life shrinks or expands in proportion to one's courage.
 - Don't avoid eye contact. Say hello to everyone.
+- The best plans let you change them.
