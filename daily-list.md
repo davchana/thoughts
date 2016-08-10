@@ -33,3 +33,4 @@
 - Don't avoid eye contact. Say hello to everyone.
 - The best plans let you change them.
 - Yesterday's home runs don't win today's games.
+- You can have excuses or results. Not both.
