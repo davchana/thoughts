@@ -35,3 +35,5 @@
 - Yesterday's home runs don't win today's games.
 - You can have excuses or results. Not both.
 - Write in order to think. You don't actually know what you think until you write it.
+- Don't wait to be happy.
+- One thing at a time.
