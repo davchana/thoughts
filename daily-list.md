@@ -16,7 +16,7 @@
 - Applying what you know from the past makes the present and future a beautiful place to be.
 - The price of discipline is less than the price of regret.
 - Take time to reflect. Be optimistic about the future.
-- If I'm not failing, I'm not reaching hight enough.
+- If I'm not failing, I'm not reaching high enough.
 - No matter what happens, it'll be just right.
 - Stand up straight.
 - "I don't know any leader in their field who isn't constantly reading."
