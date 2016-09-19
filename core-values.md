@@ -7,3 +7,4 @@ Prior to boarding the subway each morning, I read this list. It helps [better al
 - I strive to make the world better through people.
 - I practice going first.
 - I embrace discomfort - it's usually where you'll find growth.
+- I'm seek out relationships that challenege me to grow. I aim to be that person for others.
