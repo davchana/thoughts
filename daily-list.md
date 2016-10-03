@@ -2,7 +2,6 @@
 
 # Daily
 
-- Practice going first.
 - Imagine your ideal outcome.
 - Smile while reading these.
 - Do volumes of work.
@@ -37,3 +36,4 @@
 - Write in order to think. You don't actually know what you think until you write it.
 - Don't wait to be happy.
 - One thing at a time.
+- The grass is always greener where you water it.
