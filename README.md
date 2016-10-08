@@ -5,6 +5,7 @@ Inspired by my friends [Zack](http://twitter.com/zackshapiro) and [Ryan](http://
 ## Table of Contents
 - [Daily List](daily-list.md)
 - [Core Values](core-values.md)
+- [Beliefs](beliefs.md)
 
 
 ---
