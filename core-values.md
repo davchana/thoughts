@@ -7,5 +7,5 @@ Prior to boarding the subway each morning, I read this list. It helps [better al
 - I strive to make the world better through people.
 - I practice going first.
 - I focus solely on my own lane.
-- I'm seek out relationships that challenege me to grow. I aim to be that person for others.
+- I seek out relationships that challenge me to grow. I aim to be that person for others.
 - I have a bias towards action.
