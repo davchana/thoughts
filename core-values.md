@@ -7,5 +7,5 @@ Prior to boarding the subway each morning, I read this list. It helps [better al
 - I practice going first.
 - I seek out relationships that challenge me to grow. I aim to be that person for others.
 - I have a bias towards action.
-- I'm tend towards endurance, both physically and mentally.
+- I tend towards endurance, both physically and mentally.
 - I seek out 'magic' in every encounter.
