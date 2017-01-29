@@ -6,7 +6,7 @@ Inspired by my friends [Zack](http://twitter.com/zackshapiro) and [Ryan](http://
 - [Daily List](daily-list.md)
 - [Core Values](core-values.md)
 - [Beliefs](beliefs.md)
-
+- [Thought Journal](http://jasdev.me/thoughts)
 
 ---
 
