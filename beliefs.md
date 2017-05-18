@@ -10,7 +10,7 @@ An (incomplete) list of beliefs I hold. I hope and intend on these __changing__ 
 - I always want to be the person in a relationship who loves the "most."
 - Default to trust, even if it bites you in the end.
 - Never stop “dating“ your partner.
-- Always suffix “I love you” messages with the partner’s name. There something magically intimate about (hearing&#124;seeing) someone (say&#124;type) your name.
+- Always suffix “I love you” messages with the partner’s name. There's something magically intimate about (hearing&#124;seeing) someone (say&#124;type) your name.
 - On a long enough timescale, the heart always heals. Use this fact as a North Star.
 
 ## Life
